@@ -1,4 +1,3 @@
 # first-repo
 
-
-bricyn likes minors
+i am the joke man
